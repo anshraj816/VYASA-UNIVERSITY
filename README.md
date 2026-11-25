@@ -1,0 +1,3 @@
+# VYASA UNIVERSITY
+
+Official website of VYASA UNIVERSITY.
